@@ -1,2 +1,4 @@
 - 👋 "hi"
-- am Robert, a codder and WEB3 lover
+- am Robert, a codder ,student and always student
+- 
+- 
